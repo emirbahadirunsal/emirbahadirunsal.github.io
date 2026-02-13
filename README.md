@@ -1,1 +1,0 @@
-# emirbahadirunsal.github.io
